@@ -1,4 +1,4 @@
-Attribution-NonCommercial-ShareAlike 4.0 International
+Creative Commons by Attribution-NonCommercial-ShareAlike 4.0 International
 
 =======================================================================
 
